@@ -1,2 +1,0 @@
-# defendendo_fe
-Apologética 
